@@ -1,1 +1,1 @@
-# ismanaus_sviestuvo_projektas
+# ismanaus_sviestuvo_projektas_10kl
